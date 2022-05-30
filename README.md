@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @reverie1978
+- 👀 I’m interested in AI and its' uses in electric mobility in the future.
+- 🌱 I’m currently taking up a bachelor's degree in Aerospace Engineering.
+- 📫 Reach me on discord at reverie#1978
